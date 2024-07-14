@@ -1,1 +1,1 @@
-collaborations
+collaborations current coupons are enough
